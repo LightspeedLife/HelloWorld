@@ -1,2 +1,2 @@
 # HelloWorld
-I like big buts and tiddies.
+I like big butts and tiddies.
